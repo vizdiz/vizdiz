@@ -1,5 +1,5 @@
 # 💫 About Me:
-Rising junior @ Rice, CS/ECE major, prev. @ CHIA, BTI, MD Anderson, Dartmouth Health
+CS/ECE @ Rice, prev. @ CHIA, BTI, MD Anderson, Dartmouth Health
 
 
 ## 🌐 Socials:
