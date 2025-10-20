@@ -1,5 +1,5 @@
 # 💫 About Me:
-CS/ECE @ Rice, SWE @ Federal Reserve Bank of Boston, prev. @ CHIA, BTI, MD Anderson, Dartmouth Health
+CS @ Rice, Prev. @ Federal Reserve
 
 
 ## 🌐 Socials:
